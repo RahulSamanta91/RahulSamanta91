@@ -6,8 +6,6 @@
 <hr />
 
 
-
-
 - 📫 How to reach me **rahulsamanta8328@gmail.com**
 
 - ⚡ Fun fact **I Can Cook Both....**
