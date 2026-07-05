@@ -10,7 +10,7 @@
 
 - ⚡ Fun fact **I Can Cook Both....**
 
-- 👨‍💻 All of my projects are available at **[https://rahul-samanta-u73s87n.gamma.site/](https://rahul-samanta-u73s87n.gamma.site/)**
+- 👨‍💻 All of my projects are available at **[[https://rahul-samanta-u73s87n.gamma.site/](https://rahul-samanta-u73s87n.gamma.site/)](https://github.com/RahulSamanta91)**
 
 - 📄 Know about my experiences **[https://drive.google.com/file/d/1mqPuSc592TthwX6kPS7x0MqKjECJhdbe/view?usp=drive_link](https://drive.google.com/file/d/1mqPuSc592TthwX6kPS7x0MqKjECJhdbe/view?usp=drive_link)**
 
